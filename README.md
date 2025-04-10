@@ -1,2 +1,2 @@
 # Portfolio-certificados
-[CERTIFICADO DESENVOLVENDO APLICAÇÕES MOBILE COM.pdf](https://github.com/user-attachments/files/19675846/CERTIFICADO.DESENVOLVENDO.APLICACOES.MOBILE.COM.pdf)
+
